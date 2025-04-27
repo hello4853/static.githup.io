@@ -1,0 +1,1 @@
+# static.githup.io
